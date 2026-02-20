@@ -8,3 +8,6 @@
 <img src= https://github.com/user-attachments/assets/c7d665a9-9730-455f-b5e2-dea02ccc5222 width=auto height=auto />
 
 ## <p align=center>  " 𝙄 𝙩𝙝𝙤𝙪𝙜𝙝𝙩 𝙄 𝙘𝙤𝙪𝙡𝙙 𝙥𝙧𝙤𝙩𝙚𝙘𝙩 𝙮𝙤𝙪 𝙛𝙧𝙤𝙢 𝙥𝙖𝙮𝙞𝙣𝙜 𝙛𝙤𝙧 𝙢𝙮 𝙨𝙞𝙣𝙨."
+
+## [ᴄᴜʀʀᴇɴᴛ ʜʏᴘᴇʀꜰɪxᴀᴛɪᴏɴ(ꜱ)](#jax)
+<p #jax>ᴀᴠᴀᴛᴀʀ-ᴍᴏᴠɪᴇ ꜱᴇʀɪᴇꜱ ʜᴀᴢʙɪɴ ʜᴏᴛᴇʟ-ꜱʜᴏᴡ

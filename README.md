@@ -5,7 +5,8 @@
 <p align=center><img src=https://64.media.tumblr.com/c4d8c7524956c5f7a40d48e532b71b67/a93789de4aaad6ad-34/s2048x3072/40f2057c0934a52533707cc5db78683022085d9c.pnj width=auto height=auto />
 
 ## <p align=center>  " 𝙏𝙖𝙠𝙚 𝙖 𝙨𝙞𝙥 𝙤𝙛 𝙩𝙝𝙞𝙨, 𝙄'𝙢 𝙖𝙣 𝙞𝙩𝙩𝙮 𝙗𝙞𝙩𝙩𝙮 𝘾𝙐𝙋𝙃𝙀𝘼𝘿! "
-  
+  banner creds to the artists and maker onn tumblr >> @iknowifyoulookedforme
+
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 # <p align=center> 𝘼𝘽𝙊𝙐𝙏 𝙈𝙀
 

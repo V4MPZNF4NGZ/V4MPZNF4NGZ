@@ -5,7 +5,7 @@
 <p align=center><img width="2048" height="1147" alt="banner" src="https://github.com/user-attachments/assets/81b5c191-445f-43a0-a9e8-f310b24d7500" />
 
 ## <p align=center>  " 𝙏𝙖𝙠𝙚 𝙖 𝙨𝙞𝙥 𝙤𝙛 𝙩𝙝𝙞𝙨, 𝙄'𝙢 𝙖𝙣 𝙞𝙩𝙩𝙮 𝙗𝙞𝙩𝙩𝙮 𝘾𝙐𝙋𝙃𝙀𝘼𝘿! "
-  banner creds to the artists and maker onn tumblr >> @iknowifyoulookedforme
+  banner creds to the artists and maker onn tumblr i just recolored it >> @iknowifyoulookedforme
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 # <p align=center> 𝘼𝘽𝙊𝙐𝙏 𝙈𝙀

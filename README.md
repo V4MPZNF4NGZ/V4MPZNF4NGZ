@@ -15,12 +15,5 @@
 + ᴀ ᴡᴀʀɴɪɴɢ ɪ ᴛʏᴘɪᴄᴀʟʟʏ ᴘʀᴏᴠɪᴅᴇ ʙᴇᴄᴀᴜꜱᴇ ɪᴛ ᴅᴏᴇꜱɴᴛ ꜱʜᴏᴡ ᴜɴʟᴇꜱꜱ ʏᴏᴜ ɢᴇᴛ ᴛᴏ ᴋɴᴏᴡ ᴍᴇ ʙᴇᴛᴛᴇʀ ɪꜱ ᴛʜᴀᴛ ɪ ᴀᴍ ᴇxᴛʀᴇᴍᴇʟʏ ʙʟᴜɴᴛ, ᴡʜɪᴄʜ ᴍᴀɴʏ ᴘᴇᴏᴘʟᴇ ɢᴇᴛ ᴜᴘꜱᴇᴛ ᴡɪᴛʜ ꜱᴏ ᴍʏ ᴀᴘᴏʟᴏɢɪᴇꜱ.
   
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-stamp creds to @anotherlittlemuppet on tumblr
-<img src=https://64.media.tumblr.com/cf11b8ccedf906aa4371a40b0c355f3d/e8a2db90ee33c427-35/s100x200/14e0f166df5c958ba06a8ce9444268132e04599e.jpg>
-<img width="95" height="51" alt="image" src="https://github.com/user-attachments/assets/ed3eaa76-689c-4562-91e9-cba55d04e6bf" />
-<img width="95" height="51" alt="image" src="https://github.com/user-attachments/assets/0fbbcfa7-77ea-4c56-9174-5d7540be9155" />
-<img width="95" height="51" alt="image" src="https://github.com/user-attachments/assets/55d7400e-e90d-415b-9b37-0456859ac0d9" />
-<img width="95" height="51" alt="image" src="https://github.com/user-attachments/assets/ada68721-0d67-4438-8f6d-7c9146eccb7e" />
-
-
+wip
 

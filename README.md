@@ -16,4 +16,4 @@
 + ᴀ ᴡᴀʀɴɪɴɢ ɪ ᴛʏᴘɪᴄᴀʟʟʏ ᴘʀᴏᴠɪᴅᴇ ʙᴇᴄᴀᴜꜱᴇ ɪᴛ ᴅᴏᴇꜱɴᴛ ꜱʜᴏᴡ ᴜɴʟᴇꜱꜱ ʏᴏᴜ ɢᴇᴛ ᴛᴏ ᴋɴᴏᴡ ᴍᴇ ʙᴇᴛᴛᴇʀ ɪꜱ ᴛʜᴀᴛ ɪ ᴀᴍ ᴇxᴛʀᴇᴍᴇʟʏ ʙʟᴜɴᴛ, ᴡʜɪᴄʜ ᴍᴀɴʏ ᴘᴇᴏᴘʟᴇ ɢᴇᴛ ᴜᴘꜱᴇᴛ ᴡɪᴛʜ ꜱᴏ ᴍʏ ᴀᴘᴏʟᴏɢɪᴇꜱ.
   
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-<img width="2048" height="352" alt="banner2" src="https://github.com/user-attachments/assets/34806cba-6d51-4d85-b601-fa3827b98bce" />
+<img width="2048" height="200" alt="banner2" src="https://github.com/user-attachments/assets/34806cba-6d51-4d85-b601-fa3827b98bce" />

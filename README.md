@@ -1,5 +1,5 @@
 # <p align="center"> ➜ 𝙂𝙧𝙚𝙚𝙩𝙞𝙣𝙜𝙨 𝙖𝙣𝙙 𝙎𝙖𝙡𝙪𝙩𝙖𝙩𝙞𝙤𝙣𝙨!
-<img width="2048" height="596" alt="banner2" src="https://github.com/user-attachments/assets/34806cba-6d51-4d85-b601-fa3827b98bce" />
+<img width="2048" height="544" alt="banner2" src="https://github.com/user-attachments/assets/34806cba-6d51-4d85-b601-fa3827b98bce" />
 ## <p align="center"> - - - 𝙄𝙛 𝙮𝙤𝙪𝙧 𝙧𝙚𝙖𝙙𝙞𝙣𝙜 𝙩𝙝𝙞𝙨 𝙮𝙤𝙪'𝙫𝙚 𝙡𝙞𝙠𝙚𝙡𝙮 𝙘𝙤𝙢𝙚 𝙛𝙧𝙤𝙢 𝙋𝙤𝙣𝙮𝙏𝙤𝙬𝙣, 𝙎𝙤 𝙬𝙚𝙡𝙘𝙤𝙢𝙚.- - - ᴍʏ ɴᴀᴍᴇ ɪꜱ ᴊᴀx, ᴏᴛʜᴇʀᴡɪꜱᴇ ʏᴏᴜ ᴍᴀʏ ʀᴇꜰᴇʀ ᴛᴏ ᴍᴇ ᴀꜱ ᴀɴʏ ᴄʜᴀʀᴀᴄᴛᴇʀ ʏᴏᴜ ɴᴏᴛɪᴄᴇ ɪ ʜᴀᴠᴇ ᴍᴀʀᴋᴇᴅ ᴡɪᴛʜ "/ᴋɪɴ". (ᴜɴᴛɪʟ ɪ ᴍᴀᴋᴇ ᴀ ᴋɪɴ ʟɪꜱᴛ ^^)
 ## <p align="center">﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 

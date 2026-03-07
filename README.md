@@ -5,6 +5,8 @@
 ## <p align="center">ɪ'ᴍ ᴠᴇʀʏ ꜱʜʏ ꜱᴏ ɪ'ᴍ ᴛʏᴘɪᴄᴀʟʟʏ ꜱᴘᴇᴄᴛᴀᴛɪɴɢ ᴀɴᴅ ʏᴏᴜ ᴄᴀɴ ᴛᴀʟᴋ ᴛᴏ ᴍᴇ, ɪꜰ ɪ ᴅᴏɴ'ᴛ ʀᴇᴘʟʏ ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴡʜɪꜱᴘᴇʀ ᴍᴇ.
 ## <p align="center">﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
+<img width="800" height="800" alt="meowdos" src="https://github.com/user-attachments/assets/82c11a62-6556-45ec-a580-3dc8711ea203" />
+
 <p align=center><img width="2048" height="1147" alt="banner" src="https://github.com/user-attachments/assets/81b5c191-445f-43a0-a9e8-f310b24d7500" />
 
 ## <p align=center>  " 𝙏𝙖𝙠𝙚 𝙖 𝙨𝙞𝙥 𝙤𝙛 𝙩𝙝𝙞𝙨, 𝙄'𝙢 𝙖𝙣 𝙞𝙩𝙩𝙮 𝙗𝙞𝙩𝙩𝙮 𝘾𝙐𝙋𝙃𝙀𝘼𝘿! "
@@ -18,4 +20,3 @@
 + ᴀ ᴡᴀʀɴɪɴɢ ɪ ᴛʏᴘɪᴄᴀʟʟʏ ᴘʀᴏᴠɪᴅᴇ ʙᴇᴄᴀᴜꜱᴇ ɪᴛ ᴅᴏᴇꜱɴᴛ ꜱʜᴏᴡ ᴜɴʟᴇꜱꜱ ʏᴏᴜ ɢᴇᴛ ᴛᴏ ᴋɴᴏᴡ ᴍᴇ ʙᴇᴛᴛᴇʀ ɪꜱ ᴛʜᴀᴛ ɪ ᴀᴍ ᴇxᴛʀᴇᴍᴇʟʏ ʙʟᴜɴᴛ, ᴡʜɪᴄʜ ᴍᴀɴʏ ᴘᴇᴏᴘʟᴇ ɢᴇᴛ ᴜᴘꜱᴇᴛ ᴡɪᴛʜ ꜱᴏ ᴍʏ ᴀᴘᴏʟᴏɢɪᴇꜱ.
   
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-<img width="2048" height="200" alt="banner2" src="https://github.com/user-attachments/assets/34806cba-6d51-4d85-b601-fa3827b98bce" />

@@ -8,7 +8,7 @@
 <img width="800" height="434" alt="meowdos" src="https://github.com/user-attachments/assets/1273282e-289c-4a98-918d-4a97e22fdfc3" />
 
 ## <p align=center>  " 𝗝𝘂𝘀𝘁 𝘁𝗮𝗸𝗲 𝗮 𝙧𝙚𝙨𝙩, 𝗬𝗼𝘂'𝘃𝗲 𝗵𝗮𝗱 𝘀𝘂𝗰𝗵 𝗮 𝙡𝙤𝙣𝙜 𝙙𝙖𝙮 𝗮𝗻𝗱 𝙮𝙤𝙪 𝙙𝙚𝙨𝙚𝙧𝙫𝙚 𝙞𝙩."
-  banner creds to the artists and maker onn tumblr i just recolored it >> @iknowifyoulookedforme
+banner made by me!
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 # <p align=center> 𝘼𝘽𝙊𝙐𝙏 𝙈𝙀

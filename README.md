@@ -6,7 +6,7 @@
 ## <p align="center">﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 <img src=(https://github.com/user-attachments/assets/1b2cef1e-e299-43bc-a0b5-7c1ac281a876)
- alt="Alt text" width="200"/>
+ " width="200"/>
 
 ## <p align=center>  " 𝙒𝙚𝙡𝙘𝙤𝙢𝙚 𝘁𝗼 𝘁𝗵𝗲 𝙝𝙖𝙪𝙣𝙩𝙞𝙚𝙨𝙩 𝗼𝗳 𝙝𝙤𝙪𝙨𝙚𝙨 ! "
 banner made by me!

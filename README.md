@@ -5,8 +5,7 @@
 ## <p align="center"> : ɪ'ᴍ ᴠᴇʀʏ ꜱʜʏ ꜱᴏ ɪ'ᴍ ᴛʏᴘɪᴄᴀʟʟʏ ꜱᴘᴇᴄᴛᴀᴛɪɴɢ ᴀɴᴅ ʏᴏᴜ ᴄᴀɴ ᴛᴀʟᴋ ᴛᴏ ᴍᴇ. ɪꜰ ɪ ᴅᴏɴ'ᴛ ʀᴇᴘʟʏ ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴡʜɪꜱᴘᴇʀ ᴍᴇ.
 ## <p align="center">﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-<img width="800" height="800" alt="image" src="https://github.com/user-attachments/assets/aa407138-fb84-4d5c-b492-0c6f0ca321e6" />
-
+<img width="800" height="800" alt="image" src="https://github.com/user-attachments/assets/53be0cbd-089b-43cb-998d-0d1924de5c5b" />
 
 ## <p align=center>  " 𝙒𝙚𝙡𝙘𝙤𝙢𝙚 𝘁𝗼 𝘁𝗵𝗲 𝙝𝙖𝙪𝙣𝙩𝙞𝙚𝙨𝙩 𝗼𝗳 𝙝𝙤𝙪𝙨𝙚𝙨 ! "
 banner made by me!

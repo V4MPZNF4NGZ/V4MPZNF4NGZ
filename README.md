@@ -7,7 +7,7 @@
 
 <img width="800" height="800" alt="image" src="https://github.com/user-attachments/assets/53be0cbd-089b-43cb-998d-0d1924de5c5b" />
 
-## <p align=center>  " 𝙒𝙚𝙡𝙘𝙤𝙢𝙚 𝘁𝗼 𝘁𝗵𝗲 𝙝𝙖𝙪𝙣𝙩𝙞𝙚𝙨𝙩 𝗼𝗳 𝙝𝙤𝙪𝙨𝙚𝙨 ! "
+## <p align=center>" 𝙒𝙚𝙡𝙘𝙤𝙢𝙚 𝘁𝗼 𝘁𝗵𝗲 𝙝𝙖𝙪𝙣𝙩𝙞𝙚𝙨𝙩 𝗼𝗳 𝙝𝙤𝙪𝙨𝙚𝙨 ! "
 banner made by me!
   
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌

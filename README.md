@@ -4,7 +4,11 @@
 
 ## <p align="center"> : ɪ'ᴍ ᴠᴇʀʏ ꜱʜʏ ꜱᴏ ɪ'ᴍ ᴛʏᴘɪᴄᴀʟʟʏ ꜱᴘᴇᴄᴛᴀᴛɪɴɢ ᴀɴᴅ ʏᴏᴜ ᴄᴀɴ ᴛᴀʟᴋ ᴛᴏ ᴍᴇ. ɪꜰ ɪ ᴅᴏɴ'ᴛ ʀᴇᴘʟʏ ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴡʜɪꜱᴘᴇʀ ᴍᴇ.
 ## <p align="center">﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-![Untitled589_20260326225115](https://github.com/user-attachments/assets/a853ab54-46bb-496a-aa34-d1a53b55e3ef)
+
+![Streber](https://github.com/user-attachments/assets/1b2cef1e-e299-43bc-a0b5-7c1ac281a876)
+
+<img src=(https://github.com/user-attachments/assets/1b2cef1e-e299-43bc-a0b5-7c1ac281a876) height=800 width="400"/>
+
 ## <p align=center>  " 𝗝𝘂𝘀𝘁 𝘁𝗮𝗸𝗲 𝗮 𝙧𝙚𝙨𝙩, 𝗬𝗼𝘂'𝘃𝗲 𝗵𝗮𝗱 𝘀𝘂𝗰𝗵 𝗮 𝙡𝙤𝙣𝙜 𝙙𝙖𝙮 𝗮𝗻𝗱 𝙮𝙤𝙪 𝙙𝙚𝙨𝙚𝙧𝙫𝙚 𝙞𝙩."
 banner made by me!
 

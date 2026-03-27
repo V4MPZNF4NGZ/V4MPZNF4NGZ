@@ -7,8 +7,6 @@
 
 ![Streber](https://github.com/user-attachments/assets/1b2cef1e-e299-43bc-a0b5-7c1ac281a876)
 
-<img src=(https://github.com/user-attachments/assets/1b2cef1e-e299-43bc-a0b5-7c1ac281a876) height=800 width="400"/>
-
 ## <p align=center>  " 𝗝𝘂𝘀𝘁 𝘁𝗮𝗸𝗲 𝗮 𝙧𝙚𝙨𝙩, 𝗬𝗼𝘂'𝘃𝗲 𝗵𝗮𝗱 𝘀𝘂𝗰𝗵 𝗮 𝙡𝙤𝙣𝙜 𝙙𝙖𝙮 𝗮𝗻𝗱 𝙮𝙤𝙪 𝙙𝙚𝙨𝙚𝙧𝙫𝙚 𝙞𝙩."
 banner made by me!
 

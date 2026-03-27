@@ -8,8 +8,6 @@
 
 ![Untitled589_20260326225115](https://github.com/user-attachments/assets/a853ab54-46bb-496a-aa34-d1a53b55e3ef)
 
-<img width="800" height="434" alt="meowdos" src="https://github.com/user-attachments/assets/1273282e-289c-4a98-918d-4a97e22fdfc3" />
-
 ## <p align=center>  " 𝗝𝘂𝘀𝘁 𝘁𝗮𝗸𝗲 𝗮 𝙧𝙚𝙨𝙩, 𝗬𝗼𝘂'𝘃𝗲 𝗵𝗮𝗱 𝘀𝘂𝗰𝗵 𝗮 𝙡𝙤𝙣𝙜 𝙙𝙖𝙮 𝗮𝗻𝗱 𝙮𝙤𝙪 𝙙𝙚𝙨𝙚𝙧𝙫𝙚 𝙞𝙩."
 banner made by me!
 

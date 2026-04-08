@@ -16,4 +16,4 @@ banner made by me!
 + ᴀ ᴡᴀʀɴɪɴɢ ɪ ᴛʏᴘɪᴄᴀʟʟʏ ᴘʀᴏᴠɪᴅᴇ ʙᴇᴄᴀᴜꜱᴇ ɪᴛ ᴅᴏᴇꜱɴᴛ ꜱʜᴏᴡ ᴜɴʟᴇꜱꜱ ʏᴏᴜ ɢᴇᴛ ᴛᴏ ᴋɴᴏᴡ ᴍᴇ ʙᴇᴛᴛᴇʀ ɪꜱ ᴛʜᴀᴛ ɪ ᴀᴍ ᴇxᴛʀᴇᴍᴇʟʏ ʙʟᴜɴᴛ, ᴡʜɪᴄʜ ᴍᴀɴʏ ᴘᴇᴏᴘʟᴇ ɢᴇᴛ ᴜᴘꜱᴇᴛ ᴡɪᴛʜ ꜱᴏ ᴍʏ ᴀᴘᴏʟᴏɢɪᴇꜱ.
   
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-<img width="139" height="181" alt="image" src="https://github.com/user-attachments/assets/f0b33267-89f3-4c6b-8ffd-fb77443d45a2" /> ALSO PLEASE DONT COPY MY SKINS LIKE THIS GUY! i WILL point you out.
+<img width="139" height="181" alt="image" src="https://github.com/user-attachments/assets/f0b33267-89f3-4c6b-8ffd-fb77443d45a2" /> ALSO PLEASE DON'T COPY MY SKINS LIKE THIS GUY! I WILL point you out. I also don't appreciate being referenced.

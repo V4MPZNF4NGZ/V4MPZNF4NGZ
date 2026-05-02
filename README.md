@@ -4,7 +4,9 @@
 
 ## <p align="center"> : ɪ'ᴍ ᴠᴇʀʏ ꜱʜʏ ꜱᴏ ɪ'ᴍ ᴛʏᴘɪᴄᴀʟʟʏ ꜱᴘᴇᴄᴛᴀᴛɪɴɢ ᴀɴᴅ ʏᴏᴜ ᴄᴀɴ ᴛᴀʟᴋ ᴛᴏ ᴍᴇ. ɪꜰ ɪ ᴅᴏɴ'ᴛ ʀᴇᴘʟʏ ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴡʜɪꜱᴘᴇʀ ᴍᴇ.
 ## <p align="center">﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ 
-![Alt text](https://ibb.co/8nV8KdYr)
+
+<img width="800" height="628" alt="g" src="https://github.com/user-attachments/assets/f49ae97b-ce69-43f2-bd07-a673956cbf01" />
+
 ## <p align=center>" 𝙒𝙚𝙡𝙘𝙤𝙢𝙚 𝘁𝗼 𝘁𝗵𝗲 𝙝𝙖𝙪𝙣𝙩𝙞𝙚𝙨𝙩 𝗼𝗳 𝙝𝙤𝙪𝙨𝙚𝙨 ! "
 banner made by me!
   

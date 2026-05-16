@@ -5,7 +5,7 @@
 ## <p align="center"> : ɪ'ᴍ ᴠᴇʀʏ ꜱʜʏ ꜱᴏ ɪ'ᴍ ᴛʏᴘɪᴄᴀʟʟʏ ꜱᴘᴇᴄᴛᴀᴛɪɴɢ ᴀɴᴅ ʏᴏᴜ ᴄᴀɴ ᴛᴀʟᴋ ᴛᴏ ᴍᴇ. ɪꜰ ɪ ᴅᴏɴ'ᴛ ʀᴇᴘʟʏ ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴡʜɪꜱᴘᴇʀ ᴍᴇ.
 ## <p align="center">﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ 
 
-<img width="800" height="300" alt="sun" src="https://github.com/user-attachments/assets/b1e44e9c-0d03-498c-8502-765bc6c26bf1" />
+<img width="800" height="500" alt="sun" src="https://github.com/user-attachments/assets/b1e44e9c-0d03-498c-8502-765bc6c26bf1" />
 
 ## <p align=center>" 𝙏𝙝𝙚𝙧𝙚'𝙨 𝙣𝙤𝙩𝙝𝙞𝙣𝙜 𝙝𝙚𝙧𝙚 𝙩𝙝𝙖𝙩 𝙬𝙚 𝙘𝙖𝙣'𝙩 𝙝𝙖𝙣𝙙𝙡𝙚 ! "
 banner made by me!

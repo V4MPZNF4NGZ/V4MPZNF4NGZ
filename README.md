@@ -5,7 +5,7 @@
 ## <p align="center"> : ɪ'ᴍ ᴠᴇʀʏ ꜱʜʏ ꜱᴏ ɪ'ᴍ ᴛʏᴘɪᴄᴀʟʟʏ ꜱᴘᴇᴄᴛᴀᴛɪɴɢ ᴀɴᴅ ʏᴏᴜ ᴄᴀɴ ᴛᴀʟᴋ ᴛᴏ ᴍᴇ. ɪꜰ ɪ ᴅᴏɴ'ᴛ ʀᴇᴘʟʏ ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴡʜɪꜱᴘᴇʀ ᴍᴇ.
 ## <p align="center">﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ 
 
-<img width="800" height="700" alt="ft" src="https://github.com/user-attachments/assets/6a005867-b930-4911-8b6e-b441aa370acb" />
+<img width="800" height="800" alt="ft" src="https://github.com/user-attachments/assets/6a005867-b930-4911-8b6e-b441aa370acb" />
 
 ## <p align=center>" 𝙏𝙝𝙚𝙧𝙚'𝙨 𝙤𝙣𝙡𝙮 𝙊𝙉𝙀 𝙍𝙐𝙇𝙀 𝙖𝙗𝙤𝙪𝙩 𝙩𝙝𝙚 𝙙𝙖𝙮𝙘𝙖𝙧𝙚! 𝙆𝙚𝙚𝙥 𝙩𝙝𝙚 𝙡𝙞𝙜𝙝𝙩𝙨 𝙊𝙉 ! "
 banner made by me!

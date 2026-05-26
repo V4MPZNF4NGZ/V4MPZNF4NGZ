@@ -5,7 +5,7 @@
 ## <p align="center"> : ɪ'ᴍ ᴠᴇʀʏ ꜱʜʏ ꜱᴏ ɪ'ᴍ ᴛʏᴘɪᴄᴀʟʟʏ ꜱᴘᴇᴄᴛᴀᴛɪɴɢ ᴀɴᴅ ʏᴏᴜ ᴄᴀɴ ᴛᴀʟᴋ ᴛᴏ ᴍᴇ. ɪꜰ ɪ ᴅᴏɴ'ᴛ ʀᴇᴘʟʏ ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴡʜɪꜱᴘᴇʀ ᴍᴇ.
 ## <p align="center">﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ 
 
-<img width="800" height="500" alt="sun" src="https://github.com/user-attachments/assets/b1e44e9c-0d03-498c-8502-765bc6c26bf1" />
+<img width="800" height="700" alt="sun" src="https://github.com/user-attachments/assets/b1e44e9c-0d03-498c-8502-765bc6c26bf1" />
 
 <img width="800" height="500" alt="ft" src="https://github.com/user-attachments/assets/6a005867-b930-4911-8b6e-b441aa370acb" />
 

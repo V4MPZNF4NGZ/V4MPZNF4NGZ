@@ -5,7 +5,8 @@
 ## <p align="center"> : ɪ'ᴍ ᴠᴇʀʏ ꜱʜʏ ꜱᴏ ɪ'ᴍ ᴛʏᴘɪᴄᴀʟʟʏ ꜱᴘᴇᴄᴛᴀᴛɪɴɢ ᴀɴᴅ ʏᴏᴜ ᴄᴀɴ ᴛᴀʟᴋ ᴛᴏ ᴍᴇ. ɪꜰ ɪ ᴅᴏɴ'ᴛ ʀᴇᴘʟʏ ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴡʜɪꜱᴘᴇʀ ᴍᴇ.
 ## <p align="center">﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ 
 
-<img width="800" height="800" alt="ft" src="https://github.com/user-attachments/assets/6a005867-b930-4911-8b6e-b441aa370acb" />
+<img width="765" height="765" alt="white2banner" src="https://github.com/user-attachments/assets/9a685171-188b-4380-b44b-a3e1a6cfe768" />
+
 
 ## <p align=center>" 𝙎𝙤 𝙢𝙖𝙣𝙮 𝙘𝙝𝙤𝙞𝙘𝙚𝙨, 𝙙𝙚𝙘𝙞𝙨𝙞𝙤𝙣𝙨, 𝙙𝙚𝙘𝙞𝙨𝙞𝙤𝙣𝙨 𝙒𝙝𝙚𝙣 𝙞𝙩 𝙘𝙤𝙢𝙚𝙨 𝙩𝙤 𝙚𝙭𝙚𝙘𝙪𝙩𝙞𝙤𝙣, 𝙄'𝙢 𝙩𝙝𝙚 𝙙𝙚𝙛𝙞𝙣𝙞𝙩𝙞𝙤𝙣 ! "
 banner made by me!

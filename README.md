@@ -7,8 +7,7 @@
 
 <img width="765" height="765" alt="white2banner" src="https://github.com/user-attachments/assets/9a685171-188b-4380-b44b-a3e1a6cfe768" />
 
-
-<img width="765" height="765" alt="" src=https://i.pinimg.com/originals/e1/0e/b7/e10eb76cb3b7aa83b8c62a6aba119db3.gif/>
+<img src="https://img.sanishtech.com/u/7e9d22877a0ba796dd4ad9fadf994baa.png" alt="image_2026-10-23_183415397" width="498" height="280" loading="lazy" style="max-width:100%;height:auto;">
 
 ## <p align=center>" 𝙏𝙝𝙚𝙮'𝙫𝙚 𝙗𝙚𝙚𝙣 𝙩𝙧𝙮𝙞𝙣𝙜 𝙩𝙤 𝙨𝙩𝙧𝙖𝙣𝙜𝙡𝙚 𝘿𝙞𝙨𝙥𝙮 𝙛𝙤𝙧 2 𝙙𝙖𝙮𝙨. 𝘽𝙪𝙩 𝙝𝙞𝙨 𝙣𝙚𝙘𝙠 𝙞𝙨 𝙩𝙤𝙤 𝙛𝙪𝙘𝙠𝙞𝙣𝙜 𝙬𝙞𝙙𝙚. "
 banner made by me!

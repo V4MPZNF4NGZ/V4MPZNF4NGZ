@@ -2,10 +2,8 @@
 
 ## <p align=center>" 𝙏𝙝𝙞𝙨 𝙩𝙞𝙢𝙚 𝙄 𝙢𝙞𝙜𝙝𝙩 𝙟𝙪𝙨𝙩 𝙙𝙞𝙨𝙖𝙥𝙥𝙚𝙖𝙧. "
 
-# <p align=center>Greeting's and Salutations!
+# <p align=center>ɢʀᴇᴇᴛɪɴɢ'ꜱ ᴀɴᴅ ꜱᴀʟᴜᴛᴀᴛɪᴏɴꜱ!  
 
-<p align=center>My name is Jax but I also enjoy being referred to as any characters I kin (as a fictionkin) so if you see it on my skin know I won't mind at all! I actually highly encourage it, it makes me happy! 
+<p align=center>ᴍʏ ɴᴀᴍᴇ ɪꜱ ᴊᴀx ʙᴜᴛ ɪ ᴀʟꜱᴏ ᴇɴᴊᴏʏ ʙᴇɪɴɢ ʀᴇꜰᴇʀʀᴇᴅ ᴛᴏ ᴀꜱ ᴀɴʏ ᴄʜᴀʀᴀᴄᴛᴇʀꜱ ɪ ᴋɪɴ (ᴀꜱ ᴀ ꜰɪᴄᴛɪᴏɴᴋɪɴ) ꜱᴏ ɪꜰ ʏᴏᴜ ꜱᴇᴇ ɪᴛ ᴏɴ ᴍʏ ꜱᴋɪɴ ᴋɴᴏᴡ ɪ ᴡᴏɴ'ᴛ ᴍɪɴᴅ ᴀᴛ ᴀʟʟ! ɪ ᴀᴄᴛᴜᴀʟʟʏ ʜɪɢʜʟʏ ᴇɴᴄᴏᴜʀᴀɢᴇ ɪᴛ, ɪᴛ ᴍᴀᴋᴇꜱ ᴍᴇ ʜᴀᴘᴘʏ! 
 
-<p align=center>A lot of information is primarily on my carrd so feel free to check it out but I'll put the simplistic's here.
-  
-
+<p align=center>ᴀ ʟᴏᴛ ᴏꜰ ɪɴꜰᴏʀᴍᴀᴛɪᴏɴ ɪꜱ ᴘʀɪᴍᴀʀɪʟʏ ᴏɴ ᴍʏ ᴄᴀʀʀᴅ ꜱᴏ ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴄʜᴇᴄᴋ ɪᴛ ᴏᴜᴛ ʙᴜᴛ ɪ'ʟʟ ᴘᴜᴛ ᴛʜᴇ ꜱɪᴍᴘʟɪꜱᴛɪᴄ'ꜱ ʜᴇʀᴇ.   
